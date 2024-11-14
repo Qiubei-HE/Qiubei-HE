@@ -6,7 +6,7 @@
 - 📫qiubei.he@studium.uni-hamburg.de
 -    qiubei.he1@outlook.com
 -    
-- 😄 Pronouns: ...
+- 
 
 
 <!---
